@@ -1,1 +1,1 @@
-Simranpreet Kaur
+Simranpreet Kaur is from India
